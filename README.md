@@ -1,5 +1,5 @@
 # Tommy Lecomte - @2.3.4.7.14.42.213.2837
-Montreal-based textile & interactive media artist + a bit of everything else
+Montreal-based textile & new media artist + a bit of everything else
 
 ### Get in touch
 [Personal Website](https://www.tommylecomte.com)
